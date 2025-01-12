@@ -1,2 +1,2 @@
 # MiPrimerRepositorio
-Este repositorio trata de los primeros pasos en GitHub para aprender a utilizarlo.
+Este es mi **primer repositorio** y voy a utilizarlo de prueba para explorar todas las opciones.
