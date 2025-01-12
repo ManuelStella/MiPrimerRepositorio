@@ -1,0 +1,1 @@
+Hola me llamo Manuel, y como hobbie/trabajo, ya que no es remunerado, ejerzo de entrenador para la categoría sub18 de Rugby Juvenil. También disfruto de ir al cine, entrenar, competir, juegar juegos, cocinar, montar puzles y juntarme con amigos.
